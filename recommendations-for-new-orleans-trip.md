@@ -1,5 +1,5 @@
-Recommendations for places to visit on New Orleans trip
-=======================================================
+New Orleans: places to visit
+============================
 
 Visit these places:
 
